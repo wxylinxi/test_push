@@ -1,1 +1,1 @@
-我要转行了，好累啊
+i want go to home 707
