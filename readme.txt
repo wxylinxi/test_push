@@ -1,1 +1,2 @@
-我要转行了，好累啊
+i want go to home 707
+i want go to be gongwuyuan 707
